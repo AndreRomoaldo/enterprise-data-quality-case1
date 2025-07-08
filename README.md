@@ -114,6 +114,6 @@ Como resultado das estratégias aplicadas:
 
 **André Romoaldo**  
 Especialista em Análise de Dados & Business Intelligence  
-📍 [LinkedIn](https://www.linkedin.com/in/andreromoaldo)
+📍 [LinkedIn](https://www.linkedin.com/in/andre-romoaldo/)
 
 ---
